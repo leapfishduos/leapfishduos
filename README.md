@@ -1,1 +1,1 @@
-![Alternative text description](caf9da971da50c5cfbf879dc83dafe55.jpg)
+![Alternative text description](4ca907f22873cd33f1b2dff15a71d068.jpg)
